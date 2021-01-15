@@ -14,6 +14,7 @@ Evitare pezzi, soprattutto nella pasta (funghi, piselli, ...)
 - Risotti vari, possibilmente senza pezzetti, frullare
 - Minestra con pastina
 - Passato di verdure
+- Pizza, solo pomodoro (poco) per i bambini
 
 ## Secondi
 - Fetta di pollo ai ferri (con salsa di soia)
