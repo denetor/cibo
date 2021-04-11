@@ -17,6 +17,7 @@ Evitare pezzi, soprattutto nella pasta (funghi, piselli, ...)
 - Pizza, solo pomodoro (poco) per i bambini
 
 ## Secondi
+- Uovo alla coque (Francesco)
 - Fetta di pollo ai ferri (con salsa di soia)
 - Trancio di salmone, con salsa di soia
 - Trancio di tonno o pesce spada (Silvia)
