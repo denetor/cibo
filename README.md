@@ -23,9 +23,17 @@ Evitare pezzi, soprattutto nella pasta (funghi, piselli, ...)
 - Trancio di tonno o pesce spada (Silvia)
 - Polenta (Francesco)
 - Costicine al forno
+- Bastoncini Findus
+- Polpette
+
+## Contorni-verdura
 - Cavolfiore/cavolo romano (poco)
+- Carote a tondini cotte in padella al burro
+- Cappuccio
 
 ## Frutta/dolci
 - Ananas con cannella
 - Mela
+- Salame di cioccolato
+- Crostate (Lorenzo)
 - Jogurt senza pezzetti (la vaniglia è sicura)
